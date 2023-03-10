@@ -1,3 +1,2 @@
 # Mischief's Hideaway
-
-Mischief's Hideaway is the name of the Ringling Village located in the heart of the Forest of Saj. It is a bustling hub of activity for the Ringling race, with treehouses and platforms interconnected by rope bridges and vines. The village is a close-knit community, with each Ringling contributing to its upkeep and defense. 
+Mischief's Hideaway is a small village hidden deep within the Forest of Saj, home to the mischievous Ringlings. The village is built among the trees, with homes and shops nestled into the branches. The Ringlings are skilled craftspeople, and many of their wares are highly sought after in the surrounding regions. The village is also home to many festivals and celebrations, where visitors can enjoy traditional Ringling food, music, and games.
